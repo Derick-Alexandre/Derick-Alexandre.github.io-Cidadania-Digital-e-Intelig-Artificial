@@ -1,1 +1,1 @@
-# Derick-Alexandre.github.io-Cidadania-Digital-e-Intelig-Artificial
+# Derick-Alexandre.github.io-Cidadania-Digital-e-Inteligência-Artificial
